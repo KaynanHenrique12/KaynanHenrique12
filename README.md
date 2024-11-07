@@ -8,7 +8,6 @@ Meu nome é kaynan Henrique
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
 
 @Kainamhenrrique28@gmail.com 
 
